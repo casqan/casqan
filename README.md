@@ -1,4 +1,3 @@
-![](https://i.gifer.com/3BBP.gif)
+![](https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExM3ptcXdvYWJuamU1ZGNyNmUyb20ya3RtdXhvOGcwY2Y2anpxYWNtYiZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/ljUXHv2x2BpjG/giphy.gif)
 
-🔭 I’m currently working on too much at once.  
-⚡ Fun fact: bnnuy.
+🥕 Got any carrots? 🥕
